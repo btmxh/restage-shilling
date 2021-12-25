@@ -46,7 +46,7 @@ Then I looked at other units.
 
 ortensia, which consists of two ~~lesbians~~ girls who can't live without each other. The song "Yes, We Are!" filled my mind with jumps.
 
-Stellamaris, ~~no it's not a stella-re:um Re:feRe:nce~~, ... their song aRe: mediocre (but still better than some weird songs with edgy vocal and a cringe hopping girl which got moRe: views than all KiRaRe's songs combined).
+Stellamaris, ~~no it's not a stella-re:um Re:feRe:nce~~, ... their song aRe: mediocRe: (but still better than some weird songs with edgy vocal and a cringe hopping girl which got moRe: views than all KiRaRe's songs combined).
 
 But theRe: is a chiisana problem, the franchise is kind of underrated. It doesn't have a subRe:ddit, its discord server is small (but comfy and based). I want to do something about this.
 
