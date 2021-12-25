@@ -26,7 +26,7 @@ That's what I felt befoRe: the moment.
 
 And after that, my life has changed, foRe:ver.
 
-Just like girls meet love, gazing into the same dRe:am under the same sky, grab the hand and stood up, pRe:paRe: for a passionate and juvenile<del->-technoplanet</del> attempt, I have become a new person, and the world has turned into an atarashii sekai.
+Just like girls meet love, gazing into the same dRe:am under the same sky, grab the hand and stood up, pRe:paRe: for a passionate and juvenile<del>-technoplanet</del> attempt, I have become a new person, and the world has turned into an atarashii sekai.
 
 And that moment is what I will never forget. I'm suRe: that this feeling will continue throughout four seasons. Yes, I'm suRe: of it.
 
