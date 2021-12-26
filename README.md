@@ -63,4 +63,4 @@ And watch Re:Stage.”
 “Without Re:Stage, life would be a mistake.”  
 ― Friedrich Nietzsche, Twilight of the Idols
 
-(kore wa satire desu, if you can't see that you should retake elementary school)
+(koRe: wa satiRe: desu, if you can't see that you should Re:take elementary school)
